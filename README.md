@@ -10,6 +10,6 @@ Meetings will be be once a week or as needed.
 
 
 
-![image](https://user-images.githubusercontent.com/77586024/169615852-06924316-5edd-4b6d-9e9e-4f7e70f4a65f.png)
+![image](https://user-images.githubusercontent.com/77586024/169616850-032363ff-3545-4cc4-bed8-117f7c8bcba8.png)
 https://www.fluidui.com/editor/live/preview/cF9ybHo3VFhEWG9zVjYzeWNSeVFmZ0hoRkNnT1RNeE5sdg==
 
